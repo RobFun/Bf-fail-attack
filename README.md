@@ -1,2 +1,0 @@
-# Bf-fail-attack
-FAAAAAAAAAAAIL
